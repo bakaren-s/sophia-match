@@ -1,2 +1,2 @@
-made by sa and ni
-designed by aka
+made by sa and ni.
+designed by aka.
